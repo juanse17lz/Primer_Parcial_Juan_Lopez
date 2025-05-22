@@ -1,1 +1,1 @@
-# Primer_Parcial_Juan_Lopez
+# Parciales_Juan_Lopez
